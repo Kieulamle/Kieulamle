@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Kieulamle
 - 👀 I’m interested in reading books, listening to music, computer
-- 🌱 I’m currently learning information system in University of Information technology
+- 🌱 I’m currently learning Information System in University of Information technology
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - Email: kieulam25082003@gmail.com
